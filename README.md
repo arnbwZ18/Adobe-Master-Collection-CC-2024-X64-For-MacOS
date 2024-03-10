@@ -1,0 +1,1 @@
+# Adobe-Master-Collection-CC-2024-X64-For-MacOS
